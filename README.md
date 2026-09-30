@@ -14,6 +14,6 @@
  
 ---
 
-Adjunto link [[CUADERNO] https://notebooklm.link.google/nsUt5MYE808N
+Adjunto link [CUADERNO] https://notebooklm.link.google/nsUt5MYE808N
 
 
